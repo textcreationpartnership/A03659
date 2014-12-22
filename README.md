@@ -36,7 +36,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-THE ACTES and life of the most Victorious Conquerour, Robert Bruce King of SCOTLAND.WHEREIN also are
+
 1. The Printers Preface to the Reader.
 
 1. ROBERTVS BRVSSIVS Regni instaurator, ac penè novus conditor, in omni Fortuna invictus.
